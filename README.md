@@ -258,7 +258,7 @@ I'm available for **freelance Android projects** on Upwork. If you need:
 …let's talk!
 
 📧 **Email:** giorgilatsabidze84@gmail.com
-🔗 **Upwork:** [Profile link]
+🔗 **Upwork:** https://www.upwork.com/freelancers/~01f3776a45d787ee6b
 📱 **Portfolio:** This project + others on my GitHub
 
 ---
